@@ -1,4 +1,4 @@
-# dilijens
+# Dilijens
 
 Welcome to the dilijens organization! We're a group of like-minded individuals who love to have fun and enjoy life to the fullest. Our goal is to create a space where everyone can come together and share their interests, ideas, and creativity. Whether you're an expert in a specific field or just looking for a place to have some fun, dilijens is the place for you!
 
